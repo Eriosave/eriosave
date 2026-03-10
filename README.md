@@ -5,10 +5,7 @@
 
 <h6 align="center">
 
-
-~~
-
-; I'm drawing crk characters and crk ocs!! send in who you want drawn thru my ATABOOK!
+ers and crk ocs!! send in who you want drawn thru my ATABOOK!
 
 <h6 align="center">
 
