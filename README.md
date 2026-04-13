@@ -12,6 +12,11 @@
 
 <h6 align="center">
 
+
+![image alt](https://github.com/user-attachments/assets/f1e41382-c2f9-48d1-884d-102b65b68e47)
+
+<p align="center"><sub>by me!!</sub>
+
 ![image alt](https://private-user-images.githubusercontent.com/158984855/577235105-21aa2741-e10a-4a36-9d31-58bc4380d610.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzYwNjczNDksIm5iZiI6MTc3NjA2NzA0OSwicGF0aCI6Ii8xNTg5ODQ4NTUvNTc3MjM1MTA1LTIxYWEyNzQxLWUxMGEtNGEzNi05ZDMxLTU4YmM0MzgwZDYxMC5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNDEzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDQxM1QwNzU3MjlaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1iYWM4YjE4MTE1ODU1MzQ5OWIyZjNlYjg3MWJhM2Q4ZTMzODJlMzQzN2RjMDQ0YTUwMWQ2YmUyYTk3MjJhNTFiJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZwbmcifQ.W5mOR6Vom-REdFDLmVrabn7gIVaDi4lx5HTsK300ZBs)
 
-
+<p align="center"><sub>int general jjba fans! pls.. </sub>
