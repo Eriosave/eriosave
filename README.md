@@ -12,6 +12,6 @@
 
 <h6 align="center">
 
-<p align="center"><img src="https://ibb.co/t1Zjh4T>
+<p align="center"><img src="https://ibb.co/t1Zjh4T">
 
 
