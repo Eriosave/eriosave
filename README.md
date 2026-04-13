@@ -12,6 +12,6 @@
 
 <h6 align="center">
 
-<p align="center"><img src="https://f2.toyhou.se/file/f2-toyhou-se/images/112752925_hwYhDxhF5wUT9RP.png">
+<p align="center"><img src="https://ibb.co/0pRhcSqT">
 
 
